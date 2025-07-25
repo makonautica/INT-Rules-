@@ -97,6 +97,10 @@
 
 ✰Fakeclaimers of disorders/disabilities
 
+✰Stalkers
+
+✰Darkshippers, proshippers, in general js anybody who likes/interacts with harmful media
+
 ✰Anyone < 19 or anyone >14
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
