@@ -77,6 +77,8 @@
 ✰Little Nightmares
 
 ✰TADC
+
+
 ✰(A lot more I definitely forgot to put in😅)
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
@@ -84,6 +86,8 @@
 .☘︎ ݁˖˚˖𓍢ִ໋🦢˚ּ ֶָ֢. DNI : .☘︎ ݁˖˚˖𓍢ִ໋🦢˚ּ ֶָ֢.
 
 ✰Pedophiles
+
+✰Fakeclaimers
 
 ✰Zoophiles
 
