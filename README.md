@@ -28,31 +28,31 @@
 
 ⋆ ִֶָ ๋𓂃🎐 ⋆ More info : ⋆ ִֶָ ๋𓂃🎐 ⋆
 
-✰Preferred names (may depend on day!): Keegan, Donnie, Kieran, Vance
+✰Preferred names (may depend on day!): Keegan, Donnie, Kieran, Link, MK, Ben
 
 ✰They/He
 
 ✰Can speak German :]
 
-✰Demiaroace, trans
+✰Gay, trans
 
-✰INTP
+✰INTP-T
 
 ✰Hellenic
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
 
-˚ ༘ .˚🌱୭ ˚. ᵎᵎ Kinnie List : ˚ ༘ .˚🌱୭ ˚. ᵎᵎ
+˚ ༘ .˚🌱୭ ˚. ᵎᵎ Fictkin List : ˚ ༘ .˚🌱୭ ˚. ᵎᵎ
 
-✰Leo (2012 TMNT and ROTTMT), Raph (2012 TMNT), Donnie (2012 TMNT and ROTTMNT)
+✰Donnie ROTTMNT
 
-✰Hiro Hamada (BH6)
+✰BEN Drowned (Creepypasta)
 
 ✰Marie (Splatoon)
 
-✰Jax (TADC)
+✰MK (LMK)
 
-✰MK, Sun Wukong, Macaque (LMK)
+✰Link (LoZ)
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
 
@@ -103,7 +103,7 @@
 
 ✰Stalkers
 
-✰Darkshippers, proshippers, in general js anybody who likes/interacts with harmful media
+✰Darkshippers
 
 ✰Anyone < 19 or anyone >14
 
