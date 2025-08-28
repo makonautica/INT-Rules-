@@ -98,6 +98,3 @@
 ✰Anyone < 19 or anyone >14
 ✰ccherrypie on github
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
-Note: thank you saff for literally everything you do. I don't really know how to express my emotions well without seeming weird or coming off as such, but I wanted to thank you for literally everything. For being my friend, for being so understanding, for helping me through really difficult times in my life. You don't understand how much you've genuinely changed me as a person for the better. You're genuinely so selfless and such, SUCH a good friend. Please know that despite your worries, I'm not going to leave you. I never will. I'm never genuinely upset at you or mad, and I'm not going to stop being your friend. You're one of the most important people in my life and literally like the first person I speak with every morning. I genuinely appreciate you so much for everything you've done for me, whether intentional or not, whether you realize it or not. I love you saff <3 /p
-
-
